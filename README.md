@@ -1,1 +1,0 @@
-# santroc2025-privacidad
